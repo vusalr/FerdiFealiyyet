@@ -1,2 +1,2 @@
-# FerdiFealiyyet
-Vusal Rehimov Ferdi fealiyyet
+# FF
+ 
